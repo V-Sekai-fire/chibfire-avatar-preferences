@@ -1,0 +1,1 @@
+# chibfiire-avatar-preferences
